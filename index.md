@@ -1,3 +1,5 @@
+
+![Hacktiv8](https://ci6.googleusercontent.com/proxy/qL5hvNQQplQy59KcZnNoB7GxDbnZqgdrctVf9rFMg2_HkxQnfFdn52Xup3JHvBbVXs85Fk4kLDzGHgwg4d5SSr2lD3TvPpf7yvzCT8UXCkrQNDEPs59mPZ2SjBdPCuU6FrQC-wdyURimYvau=s0-d-e1-ft#https://uploads.intercomcdn.com/i/o/6384583/0359ba92179bc240031840dd/File1463363791785)
 # Hacktiv 8
 #
 
@@ -31,3 +33,5 @@ Saya rasa angkatan ini akan solid dan bisa saling membantu satu sama lain, juga 
 
 Kutipan dari **_Steve Jobs_** ini akan menjadi penutup dari contoh html sederhana ini 
 > Stay hungry. Stay foolish.
+
+![Hacktiv8](https://ci4.googleusercontent.com/proxy/f0HQT0cn7Ry93kuLWxFDcW8a5cKX9wTI1xfL1m6YuRGoEgfvp9gTazvQ4lGQ9lGfSlbBygJddf-LngKhUH9OTipCxk9QQjN0A8S_V8D-YvyBzknKVbw-QA-fNun9G8SDO1qxiS8=s0-d-e1-ft#https://uploads.intercomcdn.com/i/o/8751168/9c9c8a193edcfdc8e4265bf1/banner.png)
